@@ -1,1 +1,1 @@
-https://abylay-kun.github.io/rsschool-cv/cv,
+https://abylay-kun.github.io/rsschool-cv/cv
